@@ -1,0 +1,5 @@
+- Hey! I’m @Sn00z13-76
+- I’m interested in FNaF, BATIM, Cyberpunk, and a ton more games!
+- I’m currently learning C++ and Python!
+- Pronouns: she/they
+- Fun fact: I'm legally deaf!
